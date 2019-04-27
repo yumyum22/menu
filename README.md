@@ -1,7 +1,7 @@
 # menu
 YumYum Menu
 
-__AAAA__
+__AAAA CANADIAN CRAFT CANNABIS__
 
 
 
@@ -31,3 +31,12 @@ __Tropical Fruit Breath__ (Hybrid I:30/S:70)
 
 __Jelly Breath__ (Hybrid I:50/S:50)               
 3.5g/$50 || 7g/$75 || 14g/$125 || ~~28g/$225~~
+
+                                                               
+                                                  
+                                                  
+                                                  
+__TINCTURE__
+
+__5000mg Full Spectrum - 60ml (CBD)__                   
+$150/each
