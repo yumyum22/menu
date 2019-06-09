@@ -19,7 +19,8 @@ __Orange Apricot BX1__ (Hybrid I:90/S:10)
 A cross of the Legend Orange Apricot F2 and Orange Apricot from the Compound Genetics Orange Apricot project. Strong apricot aroma.     
 3.5g/$50 || 7g/$80 || 14g/$140 || 28g/$240
 
-__Goji X Samoas__ (Hybrid I:40/S:60)            
+__Goji X Samoas__ (Hybrid I:40/S:60)                                                                                                      
+A double cross! Goji is a cross between Nepali OG x Snow Lotus creating a unique berry and licorice flavour, and Samoas is a member of the GSC family (GSC x Face Off OG) and emits a similar berry scent with hints of chocolate, the combination makes for a flabourful, potent option.                                                                                                                                   
 3.5g/$40 || 7g/$60 || 14g/$100 || ~~28g/$200~~
                                               
 __TINCTURE__
