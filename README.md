@@ -4,11 +4,11 @@ YumYum Menu
 __AAAA CANADIAN CRAFT CANNABIS__
 
 __Grandpa Larry OG__ (Indica)
-Grandaddy Purple x Larry OG created an indica that acts more like a hybrid.  It still allows for clear, creative thoughts while relieving pain without couch lock.
+Grandaddy Purple x Larry OG created an indica that acts more like a hybrid.  It still allows for clear, creative thoughts while relieving pain without couch lock.                                                                                                    
 __3.5g/$50 || 7g/$80 || 14g/$140 || 28g/$250__ 
 
 __Gelato #33__ (Hybrid I:50/S:50)
-One of the more potent phenotypes of famous Gelato strain, a cross between Thin Mint Cookies and Sunset Sherbet.  Gelato #33 offers sweet citrus flavours that make for an uplifting and energetic high.  A great strain to start or end your day with.
+One of the more potent phenotypes of famous Gelato strain, a cross between Thin Mint Cookies and Sunset Sherbet.  Gelato #33 offers sweet citrus flavours that make for an uplifting and energetic high.  A great strain to start or end your day with.                     
 __3.5g/$50 || 7g/$80 || 14g/$140 || 28g/$250__ 
 
 __Apricot Ice Cream__ (Hybrid I:90/S:10)                                                                                                  
