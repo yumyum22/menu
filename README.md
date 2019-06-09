@@ -3,7 +3,7 @@ YumYum Menu
 
 __AAAA CANADIAN CRAFT CANNABIS__
 
-__Sour Punch__ (Hybrid I:50/S:50) 
+__Sour Punch__ (Hybrid I:50/S:50)                                                                                                         
 Mixed Aroma of berry and lemon, sedating dreamy effects. Bred from the parents Tahoe and Purple Punch. Strong grape aroma.                
 3.5g/$40 || 7g/$65 || 14g/$120 || 28g/$220
 
