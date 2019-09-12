@@ -4,8 +4,9 @@ YumYum Menu
 __AAAA CANADIAN CRAFT CANNABIS__
 
 __Forum Cut - Girl Scout Cookies (GSC)__ (Hybrid I:60/S:40) OG Kush x Durban Poison
-A hybrid cross whose reputation grew too large to stay within the borders of its California homeland. With a sweet and earthy aroma, GSC launches you to euphoria’s top floor where full-body relaxation meets a time-bending cerebral space. A little goes a long way with this hybrid, whose THC heights have won GSC numerous Cannabis Cup awards. Patients needing a strong dose of relief, however, may look to GSC for severe pain, nausea, and appetite loss
-__$40/3.5g || $70/7g || $130/14g || $240/28g__                                                                                                
+A hybrid cross whose reputation grew too large to stay within the borders of its California homeland. With a sweet and earthy aroma, GSC launches you to euphoria’s top floor where full-body relaxation meets a time-bending cerebral space. A little goes a long way with this hybrid, whose THC heights have won GSC numerous Cannabis Cup awards. Patients needing a strong dose of relief, however, may look to GSC for severe pain, nausea, and appetite loss                                                                                                   
+__$40/3.5g || $70/7g || $130/14g || $240/28g__ 
+                                                                                               
 __Smarties__ (Hybrid I:50/S:50) Blue City Diesel x GSC
 Producing a pleasant, moderate, and long-lasting body buzz, Smarties is optimal for day-time use. A light berry aroma comes with neither marked fatigue nor increased appetite; optimal choice for medical marijuana patients.                     
 __$35/3.5g || $60/7g || $110/14g || $200/28g__ 
