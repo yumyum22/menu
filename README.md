@@ -18,7 +18,7 @@ __Miracle Alien Cookies (MAC) Pheno #10__ (Hybrid I:70/S:30)  Alien Cookies x (C
 __$40/3.5g || $75/7g || $135/14g || $250/28g__
 
 __Sugar Cane Hybrid__ (Indica) Platinum X Slurricane                                                                                                                                                                 
-  So new there are very little details!
+  So new there are very little details!                                                                                                  
 __$45/3.5g || $80/7g || $145/14g || $270/28g__
 
 
