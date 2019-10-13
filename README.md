@@ -10,7 +10,7 @@ For many patients, she is a “one hitter quitter”, a strong, indica-dominant 
 * Happy
 * Euphoric
 
-__$35/3.5g || $70/7g || $125/14g
+__$35/3.5g || $70/7g || $125/14g__
 
 __Cake Crasher__ (Hybrid I:90/S:10)  _Wedding Cake x Wedding Crasher_                                      
 This delectable treat is rich with tangy sweet earth and pepper, many often note a hint of vanilla with sweet grape undertones.  Enjoy this double dose of dense dankness with care, as certain farms have noted THC content upwards of 25% or greater. Overall a mellow, earthy strain with sharp gassy highlights and a sweet berry finish.
