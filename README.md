@@ -21,7 +21,7 @@ This delectable treat is rich with tangy sweet earth and pepper, many often note
 
 __$35/3.5g || $70/7g || $125/14g__
 
-__Slurricane__ (Indica) _Do-Si-Do x Purple Punch_                                                              
+__Slurricane__ (Indica) _Do-Si-Do x Purple Punch_                                                                                                              
 Slurricane is a cross between Do-si-dos and Purple Punch.  She's an indica flower with lovely creamy, earth tones and notes of a berry and grape-like sweetness that boasts an extremely high THC concentration. Very well balanced, she is known for its higher than average THC levels that reach up to as high as 32%. The high of this strain is very relaxing and therapeutic – it is touted for its medicinal qualities and is most effective when used to treat depression, inflammation, moderate pain and stress.   
 
 * Relaxed
@@ -66,7 +66,7 @@ This hybrid leans slightly to the sativa side, offering uplifting and happy effe
                                                                                            
 __$35/3.5g || $60/7g || $110/14g || $210/28g__
 
-__Gelato #45__ (Indica) _Sunset Sherbert x Thin Mint Cookies_
+__Gelato #45__ (Indica) _Sunset Sherbert x Thin Mint Cookies_                                                                         
 Gelato (also referred to as "Larry Bird") is another tantalizing hybrid cannabis strain from Cookie Fam Genetics, following in the footsteps of its parents Sunset Sherbet and Thin Mint GSC. This Bay Area, California native gets its name from the fruity, dessert-like aroma, a common genetic thread among the Cookie family. Her buds tend to bloom in dark purple hues illuminated by fiery orange hairs and a shining white coat of crystal resin. Novice consumers may want to approach this THC powerhouse with caution, but those armed with a high tolerance will delight in Gelato’s heavy-handed euphoria. Physical relaxation comes on strong, but many find themselves still mentally agile enough to stay productive and creative when enjoying Gelato during the day.
 
 * Creative
@@ -75,3 +75,11 @@ Gelato (also referred to as "Larry Bird") is another tantalizing hybrid cannabis
 
 __$40/3.5g || $70/7g || $130/14g || $240/28g__
 
+__Captain's Cut Death Bubba__ (Indica) _Death Star x Bubba Kush_ 
+A beautiful, purple-hued strain with trichromes and terpenes abound. Created by crossing Death Star and Bubba Kush, this pungent pairing reeks of grass and skunk while the smoke is sweet, earthy, and clean on the palate. Its semi-sedative effects lock the consumer to the couch, unknotting tension and soothing minor physical discomfort with ease. This stinky BC native has been serving cannabis enthusiasts since 2012.
+
+* Relaxed
+* Happy
+* Sleepy
+
+__$35/3.5g || $70/7g || $125/14g || $230/28g__
