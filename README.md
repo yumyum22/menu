@@ -57,3 +57,21 @@ This indica powerhouse is chosen by many patients treating pain and insomnia bec
                                                                                            
 __$35/3.5g || $65/7g || $120/14g || $225/28g__
 
+__ICED Grapefruit__ (Sativa) _ICE x Grapefruit_                                                              
+This hybrid leans slightly to the sativa side, offering uplifting and happy effects that keep positivity flowing. The physically relaxing qualities of this strain come from its ICE parent, an indica-dominant hybrid cherished for its sedating effects. Both parents come through in the flavor as hashy notes intermix with sweet citrus and fruit.  
+
+* Energetic
+* Happy
+* Relaxed
+                                                                                           
+__$35/3.5g || $60/7g || $110/14g || $210/28g__
+
+__Gelato #45__ (Indica) _Sunset Sherbert x Thin Mint Cookies_
+Gelato (also referred to as "Larry Bird") is another tantalizing hybrid cannabis strain from Cookie Fam Genetics, following in the footsteps of its parents Sunset Sherbet and Thin Mint GSC. This Bay Area, California native gets its name from the fruity, dessert-like aroma, a common genetic thread among the Cookie family. Her buds tend to bloom in dark purple hues illuminated by fiery orange hairs and a shining white coat of crystal resin. Novice consumers may want to approach this THC powerhouse with caution, but those armed with a high tolerance will delight in Gelato’s heavy-handed euphoria. Physical relaxation comes on strong, but many find themselves still mentally agile enough to stay productive and creative when enjoying Gelato during the day.
+
+* Creative
+* Happy
+* Relaxed
+
+__$40/3.5g || $70/7g || $130/14g || $240/28g__
+
