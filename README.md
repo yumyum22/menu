@@ -48,3 +48,12 @@ The aroma is a mixture of Pine-Sol, lemon, and sweet berries, while the flavor i
                                                                                            
 __$35/3.5g || $65/7g || $120/14g || $225/28g__
 
+__Angel's Milk__ (Indica) _OG LA Affie x Appalachia_                                                              
+This indica powerhouse is chosen by many patients treating pain and insomnia because it provides an unusually energetic and psychedelic buzz. The aroma is a subtle blend of earthy and sweet with hints of pine and subtle fruit.  She delivers a dreamy and yet functional cerebral buzz paired with relaxing full-body effects. Sensory perception and appetite are sharpened while pain and other symptoms dull.  
+
+* Energetic
+* Creative
+* Relaxed
+                                                                                           
+__$35/3.5g || $65/7g || $120/14g || $225/28g__
+
