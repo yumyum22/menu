@@ -83,3 +83,21 @@ A beautiful, purple-hued strain with trichromes and terpenes abound. Created by 
 * Sleepy
 
 __$35/3.5g || $70/7g || $125/14g || $230/28g__
+
+__Lemon Meringue__ (Sativa) _Lemon Skunk x Cookies and Cream_
+Lemon Meringue is a sweet, zestful cross. This pungent combo emits a variety of aromas including citrus, diesel, and nuttiness, but at the center of this bouquet is a tart slice of lemon meringue pie. Lemon Meringue offers uplifting mental effects and invigorating energy that encourages physical activity. This strain’s subtle motivational qualities and pleasant euphoria make it a go-to for folks combating fatigue, depression, and minor headaches.    
+
+* Energetic
+* Uplifted
+* Focused
+
+__$40/3.5g || $70/7g || $135/14g || $250/28g__
+
+__Black Gas__ (Indica) _Gas Mask x The Black_
+Black Gas is an alluring BC legend that is known for its long-lasting high and sensational relaxing effects. Stinks of a heavy diesel fuel and crisp pine trees. Average THC levels for Black Gas top off around 22%, but what makes it so cherished is its long-lasting high and pain alleviating medicinal qualities. Black Gas lulls users into a chill, cerebral high that slowly eases into a relaxing high that sinks into your body and locks you to the couch.
+
+* Relaxed
+* Sleepy
+* Euphoric
+
+__$40/3.5g || $70/7g || $135/14g || $250/28g__
