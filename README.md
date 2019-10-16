@@ -37,7 +37,14 @@ She smells of berries and apricots with a hint of fresh oranges mixed with a lit
 * Energetic
 * Uplifted
                                                                                            
-__$40/3.5g || $70/7g || $130/14g || $240/28g__
+__$40/3.5g || $70/7g || $130/14g__
 
+__Sky Lotus__ (Hybrid) _(Mazar x Blueberry OG) x Snow Lotus_                                                              
+The aroma is a mixture of Pine-Sol, lemon, and sweet berries, while the flavor is more piney and floral.  Wait for this one, it is a creeper and will put you out at the end of your trip. Use this strain for your evening enjoyment due to the sedative effects. This plant develops an abundance of trichomes which leads to a potent, punchy buzz that soaks up stress and encourages equanimity.
 
+* Relaxed
+* Happy
+* Creative
+                                                                                           
+__$35/3.5g || $65/7g || $120/14g || $225/28g__
 
